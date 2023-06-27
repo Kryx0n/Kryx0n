@@ -1,0 +1,3 @@
+- 👋 Hello my name is Kryxon
+- 🌱 I’m currently learning hacking
+- 📫 How to reach me : Kryx0n#9999
